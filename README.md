@@ -1,4 +1,4 @@
 # Ritik
-lol
+lol, Shatrunjay
 
-fcuk fcuk lol gm
+fcuk fcuk lol gm Shatrunjay
